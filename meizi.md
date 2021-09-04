@@ -1,5 +1,26 @@
 
 
+# 2021/08/28-2021/09/04
+
+|        妹子        |                            抖音号                            |                          代表作链接                          |         标签          |           碎碎念            |
+| :----------------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :-------------------: | :-------------------------: |
+|     你过奖了啦     | [Zeros_xx](https://www.douyin.com/user/MS4wLjABAAAAJF0RJPEPxz51GSHpnvPy2V8a5Hwxf2OWJn_eIjtKU88) | [李太白变装](https://www.douyin.com/video/6997274101559659776) |        #甜妹儿        | 实际上这个BGM都能开个专场了 |
+|      小夏选手      | [Xiax77](https://www.douyin.com/user/MS4wLjABAAAAu1XLWhoA7zXMB9zwbbIOFK6ZjuOllqCFov8GPXW8YiUto8zp0T_NnH_R5kaf40vj) | [你会不会再心动一次](https://www.douyin.com/video/6993251337681046787) |          #D           |             ：D             |
+|      小奶油子      | [cream811](https://www.douyin.com/user/MS4wLjABAAAAR4wi-VsEc8zXjN87Wy3NelFRNcIobcE4fLEyr2f7kR0kUYuqptENy29XWR4bgi73) | [这一刻 我爱上了夕阳下的这片海!](https://www.douyin.com/video/7003288768304221477) |         #泳装         |            emm 😭            |
+|       布叮x        | [xiaobu.D](https://www.douyin.com/user/MS4wLjABAAAAYeFAQ30KlIzTzfU5XSCU_EU5MX-sYOatJ4VDn8yvLDe5qZy6UvA7Y9cgoq6h4GR9) |  [基操～](https://www.douyin.com/video/6998536454959877406)  |        #摇...         |          什么摇？           |
+|       小林琳       | [wmqmny](https://www.douyin.com/user/MS4wLjABAAAAEmjuiH6itYyDkVaxhF7dPFIY25NU4PIePgKT7U8GuAc) | [没了可以再挣 ，姑娘再不泡他们就老了。](https://www.douyin.com/video/6995067773260958976) |                       |   是因为这周我想去游泳吗    |
+| 原来我是你的朱大哥 | [yoki_xyuuu](https://www.douyin.com/user/MS4wLjABAAAA0arMkP5C2v7TbM_RHxWirshZ7465Y07Et7ibCp4NhG8) | [肚脐眼吹着凉了都](https://www.douyin.com/video/7002161451603348776) |       #白衣大_        |     还是看这些令人愉快      |
+|    秋秋秋同学🍁     | [aiqiuqiuq0q](https://www.douyin.com/user/MS4wLjABAAAA1JKPo6QNmk4QxtQP8j0bpQ5RxasU8VzrUySTYITCbsE) | [解开～蝴蝶结～](https://www.douyin.com/video/7002543540110708004) |                       |          来自同城           |
+|     果果不一样     | [GGbbyyy](https://www.douyin.com/user/MS4wLjABAAAAvOU5GclmETa4jehXAEspnMfYJQZAbwcJzfUFhZk4cP8) | [你好，我爱短发](https://www.douyin.com/video/7003268840213712164) |        #多风格        |     大达人质量就是能打      |
+|     野原星之助     | [XYmuaa](https://www.douyin.com/user/MS4wLjABAAAAFJL7INI3hb01o5SqtFOxjc6bLLylciUez3Q4gfMffe4) | [有事晚上说 幼儿园还没放学](https://www.douyin.com/video/7003288955516996872) |        #卡哇伊        |       有本事放学别走😭       |
+|        小乔        | [132267719](https://www.douyin.com/user/MS4wLjABAAAAfeHUJALUV_hro9kN7QT5I9pe9DNVDSkiCTiqfK0ziZo) | [别小气！是兄弟就@他！！](https://www.douyin.com/video/7002574893648776479) | #全网最懂男的女人系列 |  姐，我把大伙都艾特出来惹   |
+
+**这周发生的大事：降薪17%😭🎉**
+
+以上⬆️
+
+
+
 # 2021/08/21-2021/08/28
 
 |       妹子       |                            抖音号                            |                          代表作链接                          |     标签     |                     碎碎念                     |
@@ -69,7 +90,7 @@
 
 
 
-# 2021/08/21-2021/08/28
+# 2021/09/04-2021/09/11
 
 | 妹子 | 抖音号 | 代表作链接 | 标签 | 碎碎念 |
 | :--: | :----: | :--------: | :--: | :----: |
