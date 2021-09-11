@@ -15,6 +15,8 @@
 |   大秦美美子   | [DQA0913](https://www.douyin.com/user/MS4wLjABAAAAGKBDYo6DSgXIm6tecCHOUnsQj0OI3_S51EMydAtXt8g) | [肚子肚子肚子](https://www.douyin.com/video/7005153803204889863) |      #美女      |        好弹，想...         |
 |     兔丸儿     | [50541990](https://www.douyin.com/user/MS4wLjABAAAAWVwhAs0MqebSA0nqyswZZXZZACn2Z8JOjGXuUlPNeaY) |  [JK女友](https://www.douyin.com/video/7005430401787350303)  |     #2次元      |    多注意下名字里带丸的    |
 
+**这周发生的大事：好几个纪念日**
+
 以上⬆️
 
 # 2021/08/28-2021/09/04
@@ -32,7 +34,7 @@
 |     野原星之助     | [XYmuaa](https://www.douyin.com/user/MS4wLjABAAAAFJL7INI3hb01o5SqtFOxjc6bLLylciUez3Q4gfMffe4) | [有事晚上说 幼儿园还没放学](https://www.douyin.com/video/7003288955516996872) |        #卡哇伊        |       有本事放学别走😭       |
 |        小乔        | [132267719](https://www.douyin.com/user/MS4wLjABAAAAfeHUJALUV_hro9kN7QT5I9pe9DNVDSkiCTiqfK0ziZo) | [别小气！是兄弟就@他！！](https://www.douyin.com/video/7002574893648776479) | #全网最懂男的女人系列 |  姐，我把大伙都艾特出来惹   |
 
-**这周发生的大事：好几个纪念日**
+**这周发生的大事：降薪17%**
 
 以上⬆️
 
