@@ -1,6 +1,31 @@
 
 
+# 2021/09/11-2021/09/18
+
+|                妹子                |                            抖音号                            |                          代表作链接                          |     标签     |                            碎碎念                            |
+| :--------------------------------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :----------: | :----------------------------------------------------------: |
+|              小猫多鱼              | [87456172536](https://www.douyin.com/user/MS4wLjABAAAAP3YFbRJwjGsE6tQLXDYYsgbOSJTWTHUcYkTYZxFwNo0) | [假面舞会治愈舞](https://www.douyin.com/video/7012625570261454080) |              |                            卡哇伊                            |
+|              破破ovo               | [39348126](https://www.douyin.com/user/MS4wLjABAAAAVn3jG9_tLAvru9YjlW1NAsHmBrXMGgCzcijoQRdhww0) | [敬礼变装](https://www.douyin.com/video/7013003332952329503) |   #蓝头发    |                      最喜欢蓝头发妹子了                      |
+|             像风如你丷             | [cheniii_](https://www.douyin.com/user/MS4wLjABAAAABF9rRGxteTkmcMpOUPrNE7IDTAg1gwMznSp8ANCT400) | [我所追随的光 是五星红旗的光](https://www.douyin.com/video/7013371544495754500) | #甜妹｜#电竞 |                    这个BGM勾起以前的回忆                     |
+|              潘林礼-               | [zzpp233233](https://www.douyin.com/user/MS4wLjABAAAAjrjoNuFXAqTCPmMsOK6TqW-ajZbL2SviJOEJjiE9nqorpAV-u41zepHpjuiJdrZz?) | [今天的新皮肤](https://www.douyin.com/video/7009642497030786344) |              |                         抖音颜值达人                         |
+| 嘉然今天吃什么【第二次上榜表强调】 | [ASOULjiaran](https://www.douyin.com/user/MS4wLjABAAAA5ZrIrbgva_HMeHuNn64goOD2XYnk4ItSypgRHlbSh1c) | [下次不要乱戳屏幕啦！不然我可会来找你哦~](https://www.douyin.com/video/7011801898076474632) |   #圣嘉然    | 我装不下去了，120分的喜欢硬是装成70分的喜欢这真的好痛苦🤡 ，然然你快来找我吧 |
+|                 4U                 | [4Ulikeyou](https://www.douyin.com/user/MS4wLjABAAAAqE76f8pRkrch1HtGffycSrJpiuGOkM7dVzr_IWCP-Do) | [一秒就上头](https://www.douyin.com/video/7012173061403282721) |              |                    呵呵（表开心，她好酷哦                    |
+|              多喝烫水              | [H22233333](https://www.douyin.com/user/MS4wLjABAAAAmT2MRXNSkQleVc4nCwPeerGgbZ1M3uBuekaa7PidBxA) |  [#wink](https://www.douyin.com/video/7010702925500665119?)  |              |                          # wink状态                          |
+|       苏苏是猪猪(放弃减肥版)       | [947545lh](https://www.douyin.com/user/MS4wLjABAAAAGTcyBs_MF1p2vK0QB2pUK_N3-huudY2UtA9Shw0o5N8) | [指到的人跟我走吧](https://www.douyin.com/video/7007363646363880742) |              |                          指到我了捏                          |
+|            只准陪我干饭            | [zzJbaby9](https://www.douyin.com/user/MS4wLjABAAAAKVbEsf28Kqfx-JYmfyeIXWfa_96L5ZhegYhnvQ3PuJxxg5zT5H6VyR3ojBHYOdFy) | [原则上我封心了 但我很难对你说不爱](https://www.douyin.com/video/7005232996135619878) |              |                    粉头发妹妹太有吸引力惹                    |
+|              【彩蛋】              | [彩蛋](https://www.douyin.com/user/MS4wLjABAAAAakWLOF9unpLtE-R4HbLXB6vbarfeWX95JSzpcBe7fw4) |   [彩蛋](https://www.douyin.com/video/6957691843203124492)   |              |                    嘿嘿，真男人就该。。。                    |
+
+前面两周周六要么在调休要么在出差，所以没更新，祝大家国庆假期快乐🇨🇳
+
+以上⬆️
+
+
+
+
+
 # 2021/09/04-2021/09/11
+
+
 
 |      妹子      |                            抖音号                            |                          代表作链接                          |      标签       |           碎碎念           |
 | :------------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :-------------: | :------------------------: |
@@ -20,18 +45,18 @@
 
 # 2021/08/28-2021/09/04
 
-|        妹子        |                            抖音号                            |                          代表作链接                          |         标签          |           碎碎念            |
-| :----------------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :-------------------: | :-------------------------: |
-|     你过奖了啦     | [Zeros_xx](https://www.douyin.com/user/MS4wLjABAAAAJF0RJPEPxz51GSHpnvPy2V8a5Hwxf2OWJn_eIjtKU88) | [李太白变装](https://www.douyin.com/video/6997274101559659776) |        #甜妹儿        | 实际上这个BGM都能开个专场了 |
-|      小夏选手      | [Xiax77](https://www.douyin.com/user/MS4wLjABAAAAu1XLWhoA7zXMB9zwbbIOFK6ZjuOllqCFov8GPXW8YiUto8zp0T_NnH_R5kaf40vj) | [你会不会再心动一次](https://www.douyin.com/video/6993251337681046787) |          #D           |             ：D             |
-|      小奶油子      | [cream811](https://www.douyin.com/user/MS4wLjABAAAAR4wi-VsEc8zXjN87Wy3NelFRNcIobcE4fLEyr2f7kR0kUYuqptENy29XWR4bgi73) | [这一刻 我爱上了夕阳下的这片海!](https://www.douyin.com/video/7003288768304221477) |         #泳装         |            emm 😭            |
-|       布叮x        | [xiaobu.D](https://www.douyin.com/user/MS4wLjABAAAAYeFAQ30KlIzTzfU5XSCU_EU5MX-sYOatJ4VDn8yvLDe5qZy6UvA7Y9cgoq6h4GR9) |  [基操～](https://www.douyin.com/video/6998536454959877406)  |        #摇...         |          什么摇？           |
-|       小林琳       | [wmqmny](https://www.douyin.com/user/MS4wLjABAAAAEmjuiH6itYyDkVaxhF7dPFIY25NU4PIePgKT7U8GuAc) | [没了可以再挣 ，姑娘再不泡他们就老了。](https://www.douyin.com/video/6995067773260958976) |                       |   是因为这周我想去游泳吗    |
-| 原来我是你的朱大哥 | [yoki_xyuuu](https://www.douyin.com/user/MS4wLjABAAAA0arMkP5C2v7TbM_RHxWirshZ7465Y07Et7ibCp4NhG8) | [肚脐眼吹着凉了都](https://www.douyin.com/video/7002161451603348776) |       #白衣大_        |     还是看这些令人愉快      |
-|    秋秋秋同学🍁     | [aiqiuqiuq0q](https://www.douyin.com/user/MS4wLjABAAAA1JKPo6QNmk4QxtQP8j0bpQ5RxasU8VzrUySTYITCbsE) | [解开～蝴蝶结～](https://www.douyin.com/video/7002543540110708004) |                       |          来自同城           |
-|     果果不一样     | [GGbbyyy](https://www.douyin.com/user/MS4wLjABAAAAvOU5GclmETa4jehXAEspnMfYJQZAbwcJzfUFhZk4cP8) | [你好，我爱短发](https://www.douyin.com/video/7003268840213712164) |        #多风格        |     大达人质量就是能打      |
-|     野原星之助     | [XYmuaa](https://www.douyin.com/user/MS4wLjABAAAAFJL7INI3hb01o5SqtFOxjc6bLLylciUez3Q4gfMffe4) | [有事晚上说 幼儿园还没放学](https://www.douyin.com/video/7003288955516996872) |        #卡哇伊        |       有本事放学别走😭       |
-|        小乔        | [132267719](https://www.douyin.com/user/MS4wLjABAAAAfeHUJALUV_hro9kN7QT5I9pe9DNVDSkiCTiqfK0ziZo) | [别小气！是兄弟就@他！！](https://www.douyin.com/video/7002574893648776479) | #全网最懂男的女人系列 |  姐，我把大伙都艾特出来惹   |
+|        妹子        |                            抖音号                            |                          代表作链接                          |         标签          |              碎碎念               |
+| :----------------: | :----------------------------------------------------------: | :----------------------------------------------------------: | :-------------------: | :-------------------------------: |
+|     你过奖了啦     | [Zeros_xx](https://www.douyin.com/user/MS4wLjABAAAAJF0RJPEPxz51GSHpnvPy2V8a5Hwxf2OWJn_eIjtKU88) | [李太白变装](https://www.douyin.com/video/6997274101559659776) |        #甜妹儿        |    实际上这个BGM都能开个专场了    |
+|      小夏选手      | [Xiax77](https://www.douyin.com/user/MS4wLjABAAAAu1XLWhoA7zXMB9zwbbIOFK6ZjuOllqCFov8GPXW8YiUto8zp0T_NnH_R5kaf40vj) | [你会不会再心动一次](https://www.douyin.com/video/6993251337681046787) |          #D           |                ：D                |
+|      小奶油子      | [cream811](https://www.douyin.com/user/MS4wLjABAAAAR4wi-VsEc8zXjN87Wy3NelFRNcIobcE4fLEyr2f7kR0kUYuqptENy29XWR4bgi73) | [这一刻 我爱上了夕阳下的这片海!](https://www.douyin.com/video/7003288768304221477) |         #泳装         |               emm 😭               |
+|       布叮x        | [xiaobu.D](https://www.douyin.com/user/MS4wLjABAAAAYeFAQ30KlIzTzfU5XSCU_EU5MX-sYOatJ4VDn8yvLDe5qZy6UvA7Y9cgoq6h4GR9) |  [基操～](https://www.douyin.com/video/6998536454959877406)  |        #摇...         | 什么摇？【10.1 更新好像最近火了】 |
+|       小林琳       | [wmqmny](https://www.douyin.com/user/MS4wLjABAAAAEmjuiH6itYyDkVaxhF7dPFIY25NU4PIePgKT7U8GuAc) | [没了可以再挣 ，姑娘再不泡他们就老了。](https://www.douyin.com/video/6995067773260958976) |                       |      是因为这周我想去游泳吗       |
+| 原来我是你的朱大哥 | [yoki_xyuuu](https://www.douyin.com/user/MS4wLjABAAAA0arMkP5C2v7TbM_RHxWirshZ7465Y07Et7ibCp4NhG8) | [肚脐眼吹着凉了都](https://www.douyin.com/video/7002161451603348776) |       #白衣大_        |        还是看这些令人愉快         |
+|    秋秋秋同学🍁     | [aiqiuqiuq0q](https://www.douyin.com/user/MS4wLjABAAAA1JKPo6QNmk4QxtQP8j0bpQ5RxasU8VzrUySTYITCbsE) | [解开～蝴蝶结～](https://www.douyin.com/video/7002543540110708004) |                       |             来自同城              |
+|     果果不一样     | [GGbbyyy](https://www.douyin.com/user/MS4wLjABAAAAvOU5GclmETa4jehXAEspnMfYJQZAbwcJzfUFhZk4cP8) | [你好，我爱短发](https://www.douyin.com/video/7003268840213712164) |        #多风格        |        大达人质量就是能打         |
+|     野原星之助     | [XYmuaa](https://www.douyin.com/user/MS4wLjABAAAAFJL7INI3hb01o5SqtFOxjc6bLLylciUez3Q4gfMffe4) | [有事晚上说 幼儿园还没放学](https://www.douyin.com/video/7003288955516996872) |        #卡哇伊        |          有本事放学别走😭          |
+|        小乔        | [132267719](https://www.douyin.com/user/MS4wLjABAAAAfeHUJALUV_hro9kN7QT5I9pe9DNVDSkiCTiqfK0ziZo) | [别小气！是兄弟就@他！！](https://www.douyin.com/video/7002574893648776479) | #全网最懂男的女人系列 |     姐，我把大伙都艾特出来惹      |
 
 **这周发生的大事：降薪17%**
 
